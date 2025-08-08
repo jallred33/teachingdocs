@@ -10,7 +10,7 @@ You may think that you are an excellent multi-tasker, but there is a [growing](h
 
 In your professional lives, people will have their phones and other devices with them at their jobs, in meetings, at conferences, and so on. Adults do not have their devices taken away from them. They are expected to manage their own use.
 
-You may have your phone and/or laptop on hand during class, but if so you should use them only for accessing our readings, class resources, or for finding outside materials pertinent to our discussions and activities. You should not use them to follow a game, message your friends, check your friends’ Tumblrs, etc. Your friends and family will actually survive three hours each week without direct updates as to your whereabouts and doings. Hit them at 12:46 each Monday and Thursday with a text about the unbridgeable chasm separating things from their linguistic descriptors. They’ll be so grateful, they’ll look past your temporary absence from the # extremelyonline world
+You may have your phone and/or laptop on hand during class, but if so you should use them only for accessing our readings, class resources, or for finding outside materials pertinent to our discussions and activities. You should not use them to follow a game, message your friends, check your friends’ IGs, etc. Your friends and family will actually survive three hours each week without direct updates as to your whereabouts and doings. Hit them at 11:16 each Monday and Thursday with a text about the literary theory or ideas of genre. They’ll be so grateful, they’ll look past your temporary absence from the # extremelyonline world
 
 If you want to do yourself a favor, consider the following:
 
